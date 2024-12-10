@@ -1,0 +1,1 @@
+Hello, my account is disabled due to age and I am actually 18 years old. Below will be attached the photos of the proof that you requested from me (a photo of my face with my username and passport number on it)
